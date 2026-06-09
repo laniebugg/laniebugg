@@ -2,11 +2,24 @@
 <p align="center"> 
   --- (STILL A WIP) ---
 <p align="center">
-   <small><i>"A quote will go here"</i></small>
+   <small><i>"A wishbone never breaks even. It’s up to you to decide what you do with your end of the stick."</i></small>
 <p align="center">
   ---
 
 <p align="center">
-This will likely be the main name of intro
+<strong>Lanie<strong>
+</br> Mostly She/Her, but any pronouns are fine
 <p align="center">
-and this, some smaller main facts
+Hello! I'm Lanie and this github is for my PT account. I'm a little nervous around new people, but might be able to click well with someone new. I don't really interact with people (or even friends that I make on PT exclusively) very much, but I will still try to be friendly towards people on my friends list! There's a chance I could be offtab, so if you need to talk to me and I'm not there, you should whisper me so it doesnt get flooded in the chat.
+<p align="center">
+I am quite direct/sarcastic when it comes to humor, so if you think I'm being mean to you, I promise I'm not trying to be!
+</br> Please tell me if it bothers you, so that I can tone it down a bit.
+
+<p align="center">
+---
+<p align="center">
+<strong>Interests<strong>
+<p align="center">
+I'm quite defined by my interests, because it's really hard to go through a day without having one of them on my mind. Here's some of mine:
+<p align="center">
+(LIST)
