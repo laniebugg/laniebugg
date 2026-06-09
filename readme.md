@@ -3,4 +3,5 @@
   --- (STILL A WIP) ---
 <p align="center">
    <small><i>Hello This is a test</i></small>
-</br> ---
+<p align="center">
+  ---
