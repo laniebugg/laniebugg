@@ -22,4 +22,12 @@ I am quite direct/sarcastic when it comes to humor, so if you think I'm being me
 <p align="center">
 I'm quite defined by my interests, because it's really hard to go through a day without having one of them on my mind. Here's some of mine:
 <p align="center">
-(LIST)
+<strong>MAIN INTERESTS</strong> - Conan Gray, Homestuck
+</br>
+<strong>MUSIC ARTISTS</strong> - Conan Gray, MICO, Jhariah, Ewy, Vaultboy, and various others, but not as much
+</br>
+<strong>MOVIES / SHOWS</strong> - Stranger Things, The Amazing Digital Circus (fans iwec.), Marvel Cinematic Universe
+</br>
+<strong>GAMES</strong> - Pokemon, Skylanders, Hades, Depth Spelunking, My Singing Monsters, 
+</br>
+<strong>OTHER MEDIA</strong> - Sanders Sides, Wings of Fire (Less so nowadays).
