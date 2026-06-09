@@ -43,3 +43,4 @@ I'm quite defined by my interests, and music means a lot to me. Here's some of t
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b536xaqlp33nyqzor6q2i62a&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
   </a>
 </p>
+<p align="center"> <small>I love music that destroys and emotionally devestates me <3</small>
