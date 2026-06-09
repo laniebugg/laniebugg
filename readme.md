@@ -2,11 +2,11 @@
 <p align="center"> 
   --- (STILL A WIP) ---
 <p align="center">
-   <small><i>Hello This is a test</i></small>
+   <small><i>"A quote will go here"</i></small>
 <p align="center">
   ---
 
 <p align="center">
-This is yet another test
+This will likely be the main name of intro
 <p align="center">
-and this is another
+and this, some smaller main facts
