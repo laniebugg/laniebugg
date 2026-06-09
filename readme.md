@@ -1,5 +1,6 @@
 </p>
 <p align="center"> 
-  ---
-</br> Hello This is a test
+  --- (STILL A WIP) ---
+<p align="center">
+   <small><i>Hello This is a test</i></small>
 </br> ---
