@@ -31,9 +31,9 @@ I'm quite defined by my interests, and music means a lot to me. Here's some of t
 </br>
 <strong>MOVIES / SHOWS</strong> - Stranger Things, The Amazing Digital Circus (fans iwec.), Marvel Cinematic Universe
 </br>
-<strong>GAMES</strong> - Pokemon, Skylanders, Hades, Depth Spelunking, My Singing Monsters, 
+<strong>GAMES</strong> - Pokemon, Skylanders, Hades, Depth Spelunking, and My Singing Monsters.
 </br>
-<strong>OTHER MEDIA</strong> - Sanders Sides, Wings of Fire (Less so nowadays).
+<strong>OTHER MEDIA</strong> - Sanders Sides and Wings of Fire (Less so nowadays).
 
 <p align="center">
 ▮▮▮ - 𝄞 `☘︎ ⟡─ .﹏﹏ 人 ﹏﹏. ─⟡ ☘︎` ♫ - ▮▮▮
