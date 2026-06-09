@@ -36,4 +36,7 @@ I'm quite defined by my interests, and music means a lot to me. Here's some of t
 ▮▮▮ - 𝄞 `☘︎ ⟡─ .﹏﹏ 人 ﹏﹏. ─⟡ ☘︎` ♫ - ▮▮▮
 
 <p align="center">
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b536xaqlp33nyqzor6q2i62a&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b536xaqlp33nyqzor6q2i62a&redirect=true)
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b536xaqlp33nyqzor6q2i62a&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31l7b536xaqlp33nyqzor6q2i62a&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false">
+  </a>
+</p>
