@@ -4,7 +4,7 @@
 <p align="center">
    <small><i>"A wishbone never breaks even. It’s up to you to decide what you do with your end of the stick."</i></small>
 <p align="center">
-  ---
+  𝄞 ﹏﹏﹏﹏﹏˖✪.𖥔┈┈┈ ˚☘︎. ⟡─ ﹏﹏﹏ᯓ﹏`人-{ ⚓︎ }-人`﹏ᯓ﹏﹏﹏ ─⟡ .☘︎˚ ┈┈┈𖥔.✪˖﹏﹏﹏﹏﹏ ♫
 
 <p align="center">
 <strong>Lanie</strong>
@@ -20,7 +20,7 @@ I am quite direct/sarcastic when it comes to humor, so if you think I'm being me
 <p align="center">
 <strong>Interests</strong>
 <p align="center">
-I'm quite defined by my interests, because it's really hard to go through a day without having one of them on my mind. Here's some of mine:
+I'm quite defined by my interests, and music means a lot to me. Here's some of the things I like:
 <p align="center">
 <strong>MAIN INTERESTS</strong> - Conan Gray, Homestuck
 </br>
