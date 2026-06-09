@@ -4,7 +4,7 @@
 <p align="center">
    <small><i>"A wishbone never breaks even. It’s up to you to decide what you do with your end of the stick."</i></small>
 <p align="center">
-  𝄞 ﹏﹏﹏﹏﹏˖✪.𖥔┈┈┈ ˚☘︎. ⟡─ ﹏﹏﹏ᯓ﹏`人-{ ⚓︎ }-人`﹏ᯓ﹏﹏﹏ ─⟡ .☘︎˚ ┈┈┈𖥔.✪˖﹏﹏﹏﹏﹏ ♫
+  𝄞 ﹏﹏﹏﹏﹏✪﹏𖥔┈┈┈ ﹏﹏﹏﹏ ⟡─ 人﹏┈┈☘︎{ ⚓︎ }☘︎┈┈﹏人 ─⟡ ﹏﹏﹏﹏ ┈┈┈𖥔﹏✪﹏﹏﹏﹏﹏ ♫
 
 <p align="center">
 <strong>Lanie</strong>
