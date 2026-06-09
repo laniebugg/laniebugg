@@ -1,6 +1,6 @@
 </p>
 <p align="center"> 
-  --- (STILL A WIP) ---
+  ▮▮▮ - 𝄞 ﹏✪﹏﹏ ⟡─ ⚓︎﹏﹏`☘︎ .﹏﹏ 人 ﹏﹏. ☘︎`﹏﹏⚓︎ ─⟡ ﹏﹏✪﹏ ♫ - ▮▮▮
 <p align="center">
    <small><i>"A wishbone never breaks even. It’s up to you to decide what you do with your end of the stick."</i></small>
 <p align="center">
@@ -16,7 +16,7 @@ I am quite direct/sarcastic when it comes to humor, so if you think I'm being me
 </br> Please tell me if it bothers you, so that I can tone it down a bit.
 
 <p align="center">
----
+▮▮▮ - 𝄞 ﹏✪﹏﹏ ⟡─ ⚓︎﹏﹏`☘︎ .﹏﹏ 人 ﹏﹏. ☘︎`﹏﹏⚓︎ ─⟡ ﹏﹏✪﹏ ♫ - ▮▮▮
 <p align="center">
 <strong>Interests</strong>
 <p align="center">
@@ -31,3 +31,9 @@ I'm quite defined by my interests, and music means a lot to me. Here's some of t
 <strong>GAMES</strong> - Pokemon, Skylanders, Hades, Depth Spelunking, My Singing Monsters, 
 </br>
 <strong>OTHER MEDIA</strong> - Sanders Sides, Wings of Fire (Less so nowadays).
+
+<p align="center">
+▮▮▮ - 𝄞 ﹏✪﹏﹏ ⟡─ ⚓︎﹏﹏`☘︎ .﹏﹏ 人 ﹏﹏. ☘︎`﹏﹏⚓︎ ─⟡ ﹏﹏✪﹏ ♫ - ▮▮▮
+
+<p align="center">
+This readme is still pretty WIP
