@@ -8,5 +8,5 @@
 
 <p align="center">
 This is yet another test
-</br>
+<p align="center">
 and this is another
