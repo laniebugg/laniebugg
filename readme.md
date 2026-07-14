@@ -31,7 +31,7 @@ There's a chance I could be offtab, so if you need to talk to me and I'm not the
 <p align="center">
 I'm quite defined by my interests, and music means a lot to me. Here's some of the things I like:
 <p align="center">
-<strong>MAIN INTERESTS</strong> - Conan Gray and Homestuck, mostly.
+<strong>MAIN INTERESTS</strong> - Conan Gray and Homestuck, mostly. Also sort of Marvel/MCU
 </br>
 <strong>MUSIC ARTISTS</strong> - Conan Gray, MICO, Jhariah, Ewy, Vaultboy, and various others, but not as much
 </br>
