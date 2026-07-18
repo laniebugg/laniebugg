@@ -22,6 +22,7 @@ There's a chance I could be offtab, so if you need to talk to me and I'm not the
 </br> you should whisper me so it doesnt get flooded in the chat.
 </br> I am quite direct/sarcastic when it comes to humor, so if you think I'm being mean to you, I promise I'm not trying to be!
 </br> Please tell me if it bothers you, so that I can tone it down a bit.
+<p align="center"> Do not copy my skins. LIGHT inspiration is ... fine, i guess, I cant stop that really
 <p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
 
 <p align="center">
