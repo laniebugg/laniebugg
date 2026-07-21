@@ -17,6 +17,8 @@
 </br> Mostly They/Them, but any pronouns are fine. Currently experimenting with gender
 <p align="center">
 Hello! I'm Lanie and this github is for my PT account. I'm a little nervous around new people, but might be able to click well with someone new. I don't really interact with people (or even friends that I make on PT exclusively) very much, but I will still try to be friendly towards people on my friends list.
+ <p align="center">
+Sometimes, especially if you dont know me, I like to be called by the name of whatever pony im using on PT. If you dont know me i want to be seen as some rando as a character
 <p align="center">
 There's a chance I could be offtab, so if you need to talk to me and I'm not there,
 </br> you should whisper me so it doesnt get flooded in the chat.
