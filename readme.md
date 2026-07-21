@@ -46,3 +46,4 @@ I'm quite defined by my interests, and music means a lot to me. Here's some of t
 ▮▮▮ - 𝄞 `☘︎ ⟡─ .﹏﹏ 人 ﹏﹏. ─⟡ ☘︎` ♫ - ▮▮▮
 
 <p align="center"> <small>I love music that destroys and emotionally devestates me <3</small>
+<p align="center"> <small>i have a lot of feelings & interests, i feel so incredibly deeply</small>
