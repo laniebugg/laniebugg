@@ -16,10 +16,10 @@
 <strong>Lanie</strong>
 </br> Mostly They/Them, but any pronouns are fine. Currently experimenting with gender
 </br> Young adult (18-21)
+<p align="center"> A bit socially anxious, and I don't interact w/ ppl a lot, but I still try to be friendly.
 <p align="center"> Do not copy my skins. LIGHT inspiration is ... fine, i guess, I cant stop that really
 <p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
-<p align="center">
-Hello! I'm Lanie and this github is for my PT account. I'm a little nervous around new people, but might be able to click well with someone new. I don't really interact with people (or even friends that I make on PT exclusively) very much, but I will still try to be friendly towards people on my friends list.
+<p align="center"> This github is for my PT account
  <p align="center">
 Sometimes, especially if you dont know me, I like to be called by the name of whatever pony im using on PT. If you dont know me i want to be seen as some rando as a character
 <p align="center"> There's a chance I could be offtab, so if you need to talk to me and I'm not there, whisp me
