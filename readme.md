@@ -23,8 +23,7 @@ Hello! I'm Lanie and this github is for my PT account. I'm a little nervous arou
  <p align="center">
 Sometimes, especially if you dont know me, I like to be called by the name of whatever pony im using on PT. If you dont know me i want to be seen as some rando as a character
 <p align="center"> There's a chance I could be offtab, so if you need to talk to me and I'm not there, whisp me
-</br> I am quite direct/sarcastic when it comes to humor, so if you think I'm being mean to you, I promise I'm not trying to be!
-</br> Please tell me if it bothers you, so that I can tone it down a bit.
+</br> I am quite direct/sarcastic & can be mean when it comes to humor, please tell me if it bothers you!
 
 <p align="center">
 ▮▮▮ - 𝄞 `☘︎ ⟡─ .﹏﹏ 人 ﹏﹏. ─⟡ ☘︎` ♫ - ▮▮▮
