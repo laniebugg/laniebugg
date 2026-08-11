@@ -15,17 +15,16 @@
 <p align="center">
 <strong>Lanie</strong>
 </br> Mostly They/Them, but any pronouns are fine. Currently experimenting with gender
+</br> Young adult (18-21)
+<p align="center"> Do not copy my skins. LIGHT inspiration is ... fine, i guess, I cant stop that really
+<p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
 <p align="center">
 Hello! I'm Lanie and this github is for my PT account. I'm a little nervous around new people, but might be able to click well with someone new. I don't really interact with people (or even friends that I make on PT exclusively) very much, but I will still try to be friendly towards people on my friends list.
  <p align="center">
 Sometimes, especially if you dont know me, I like to be called by the name of whatever pony im using on PT. If you dont know me i want to be seen as some rando as a character
-<p align="center">
-There's a chance I could be offtab, so if you need to talk to me and I'm not there,
-</br> you should whisper me so it doesnt get flooded in the chat.
+<p align="center"> There's a chance I could be offtab, so if you need to talk to me and I'm not there, whisp me
 </br> I am quite direct/sarcastic when it comes to humor, so if you think I'm being mean to you, I promise I'm not trying to be!
 </br> Please tell me if it bothers you, so that I can tone it down a bit.
-<p align="center"> Do not copy my skins. LIGHT inspiration is ... fine, i guess, I cant stop that really
-<p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
 
 <p align="center">
 ▮▮▮ - 𝄞 `☘︎ ⟡─ .﹏﹏ 人 ﹏﹏. ─⟡ ☘︎` ♫ - ▮▮▮
@@ -34,7 +33,7 @@ There's a chance I could be offtab, so if you need to talk to me and I'm not the
 <p align="center">
 I'm quite defined by my interests, and music means a lot to me. Here's some of the things I like:
 <p align="center">
-<strong>MAIN INTERESTS</strong> - Conan Gray and Homestuck, mostly. Also sort of Marvel/MCU
+<strong>MAIN INTERESTS</strong> - Conan Gray and Homestuck and Marvel Cinematic Universe
 </br>
 <strong>MUSIC ARTISTS</strong> - Conan Gray, MICO, Jhariah, Ewy, Vaultboy, and various others, but not as much
 </br>
