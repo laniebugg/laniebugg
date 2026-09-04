@@ -17,7 +17,7 @@
 </br> Mostly They/Them, but any pronouns are fine. Currently experimenting with gender
 </br> Young adult (18-21), under 14 dni
 <p align="center"> A bit socially anxious, and I don't interact w/ ppl a lot, but I still try to be friendly.
-<p align="center"> Do not copy my skins. LIGHT inspiration is ... fine, i guess, I cant stop that really
+<p align="center"> Do not copy my skins.
 <p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
 <p align="center"> This github is for my PT account
  <p align="center">
