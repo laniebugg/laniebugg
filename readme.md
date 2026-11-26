@@ -18,6 +18,7 @@
 </br> Young adult (18-21), under 14 dni
 <p align="center"> A bit socially anxious, and I don't interact w/ ppl a lot, but I still try to be friendly.
 <p align="center"> Do not copy my skins.
+<p align="center"> Please don't spam follow me
 <p align="center"> <strong>PROSHIPS / DARKSHIPS DNI.</strong>
 <p align="center"> This github is for my PT account
 <p align="center"> There's a chance I could be offtab, so if you need to talk to me and I'm not there, whisp me.
